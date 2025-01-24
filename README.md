@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Hue Nguyen aka Nguyen Hue aka Quang Trunng but I'm female, I don't know what exactly I find here :))
+- 👋 Hi, I’m Hue Nguyen aka Nguyen Hue aka Quang Trung but I'm female, I don't know what exactly I find here :))
 - 👀 But if you randomly see me, nice to meet u :))
 - 📫 Reach me via gmail hue689631@gmail.com
 - ⚡ Fun fact: will add asap :))
